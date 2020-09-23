@@ -5,6 +5,8 @@ GMTC PPT合集
 
 *20190802: 最近一直比较忙，今天抽空上传了一下今年的GMTC的PPT，大家有需要的可以下载~，老规矩上网盘链接。*
 
+*20200923: 2020年由于疫情原因，GMTC会议取消了...*
+
 2019：链接: https://pan.baidu.com/s/1hnkF_G9GYbO6hS55sayx0g 提取码: yssd 
 
 2018：链接: https://pan.baidu.com/s/1JT1cQiYKo78BcZTiVdBEPg 提取码: 3ywa 
